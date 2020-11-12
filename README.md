@@ -1,1 +1,0 @@
-# normaldvzp8g
